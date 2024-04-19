@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @yzned
+👋 Hi, I’m @yzned
